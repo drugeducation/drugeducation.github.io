@@ -22,3 +22,5 @@
 [>>Zetas ejecutaron por la espalda a los 72 migrantes; no pudieron pagar rescate](https://www.jornada.com.mx/2010/08/26/politica/002n1pol)
 
 [>>2011 San Fernando massacre](https://en.wikipedia.org/wiki/2011_San_Fernando_massacre)
+
+Los Zetas Inc by Guadalupe Correa-Cabrera
