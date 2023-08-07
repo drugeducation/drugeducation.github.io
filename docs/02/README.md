@@ -8,4 +8,4 @@
 - Forced rival cartels struggling against them to adopt their tactics (if you can’t beat ‘em, join ‘em)
 - This resulted in extreme violence becoming much more common when it comes to disputes between cartels
 - It also has led to the gradual escalation of violence in Mexico, bringing it to higher levels and introducing new forms
-- Los Zetas set a new standard for levels of militarization and violence, ultimately influencing other cartels.
+
