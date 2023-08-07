@@ -2,7 +2,7 @@
 
 > Originated in the late 1990s
 
-![logo](/Los-Zetas.jpg)
+![logo](Los-Zetas.jpg)
 
 - Tamaulipas is a Mexican state that borders Texas. It is home to the city of Nuevo Laredo, which handles roughly 40% of trade with the US.
 - In the midst of legal trade happening in Nuevo Laredo, an illicit underbelly started to take shape in the 1930s, as an organization began to develop around the region’s illegal trade.

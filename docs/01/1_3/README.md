@@ -5,7 +5,7 @@
 - As of now, however, the Zetas have fragmented into many smaller splintered cells, making it difficult to identify leaders
 - Most if not all of the original Zetas are dead or captured
 
-![logo](/image-38.png)
+![logo](image-38.png)
 
 > More articles
 
